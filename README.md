@@ -1,4 +1,4 @@
-# Hello! 😄  
+# Hello! 🖐️😄
 
 My name is **Kevin Yauwry**, and I’m currently an undergraduate student in my 5th semester, based in Surabaya, Indonesia.
 
